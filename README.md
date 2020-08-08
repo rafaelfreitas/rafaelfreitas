@@ -6,9 +6,9 @@
     <br><br>
     I work as a Mobile :iphone: and Web :globe_with_meridians: developer!
     <br><br>
-    I believe in a better world for me and you. :grin:
+    I believe in a better world for me and you - Ramones :earth_americas:
     <br><br>
-    P.S. I do know that HTML is not a programming language! :v:
+    Wir sind frei. Frei wie der Wind. Wir sind wer wir sind - Santiano :skull:
   </samp>
 </p>
 
